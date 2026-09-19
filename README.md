@@ -1,3 +1,3 @@
 # firstyuvraj9545-demo
-whatsupp gng!!!!
-auhtor: Yuvraj singh
+whatsupp gng!!!!How u doin 
+Author: Yuvraj singh
